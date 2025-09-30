@@ -12,3 +12,5 @@ i feel like if we had an ai forecast robot i would be able to know the weather a
 
 # september 22, 2025
 i think working in a virtual store for real money is a great opportunity for people to make money at home easy exspecially like young adults and kids that dont have transportation but i think in the long run it would ruin our job market. people would want those jobs more and depending on how easy they are to obtain they could prossibly get them which would make other jobs go more in demand.so yes as it sounds like a great plan in the long run it would actually ruin our job market more.
+# september 30, 2025
+The phrase "6, 7" doesn't have an exact meaning,  just the way you interpret it and use it in your vocabulary. I feel like most of the time that it's used, it's just for entertainment because students struggle with boredom. Its something about saying “six, seven” is so nice and my generation kinda has a general grasp of what it is without it having a specific meaning behind it.
