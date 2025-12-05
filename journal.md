@@ -24,9 +24,15 @@ if i were in charge of my schools ai policy and wanted better for my school i wo
 *use ai
 stages of the water cycle for 6th grade science class, the goal was fir the students to undrstand and identify the 4 different stages and also how water moves through those stages. use friendly and engagingtone, eachstage should be on a separate slide with with clickable animation that shows water molecules chaning state. include a final quiz slide with multiple choice questions test to test their undertsnaging.
 
-# october 27,2025
+# october 27, 2025
 *use ai
 technology plays a very important role in helping to keep people informed and prepared for natural disasters. beforre hurricans hit we are able to see them on computer models as they pproach us being able to keep us prepared and able to recover if something happens. social media and communication like calls and text help us to get real life updates about our loved ones and to give support to eachother to keep going.technology helps us to access resources that are needed and locations that cant be found otherwise map way.
+
 # november 10, 2025
 *use ai
 technology ha very much changed the way holidays are celbrated and the offering that are brought. familys can now use video calls to connect with distant relatives which allows those relatives to participate in the family gathering without fully being there. however if not handled with control people may get a bigger focus on their devices rather than their family. 
+
+# november 17, 2025
+since im writing this a week late ima tell u my story in past tense. i was ver6y ready to go on break, i feel like school kinda gets stressful right before break and that like the most d5aining time. like u have antisipation for the break and ur so ready for it to come but also u still have to go to school and work till then. i ate so much for thanks giving and i remember telling myself i would work hella over break to make hella money but i ended up only working 4 days and it was honestly pretty nce. like i finally got a break from life because school really do be draining for real. oh also like i said i ate so mucy for thansgiving my stepdad made a roast with mashed sweetpotatoes and some other stuff but i lowk forgot, also i made a tres leches cake and it was so yummyness i loved it i was sop proud of miself.
+
+# december 1, 2025 
