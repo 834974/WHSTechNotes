@@ -55,3 +55,7 @@ i was taking my math tsi since it is the only one i havent passed. honestly the 
 3) some shared expectation in a shared space are to smell nice, talk quietly so not everyone can hear you, dont be yelling at anyone, be respectful. like basically just have some type of home training and manners.
 4) its an important skill for school and work because if your not able to self regulate then your gonna have a problem controling ur emotions and that snot a good look for you. you will get fired if you can control your emotions and crash out on someone at work.
 5) i think one way i can better improve myself is by communication and how i talk to people.
+
+# febuary 10, 2026
+1) no i dont really like football idk why i just never grew up watching it so i dont really understand it.
+2) no i didnt watch the game, i did see the half time show with bad bunny though and i loved it.
