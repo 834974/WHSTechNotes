@@ -56,6 +56,7 @@ i was taking my math tsi since it is the only one i havent passed. honestly the 
 4) its an important skill for school and work because if your not able to self regulate then your gonna have a problem controling ur emotions and that snot a good look for you. you will get fired if you can control your emotions and crash out on someone at work.
 5) i think one way i can better improve myself is by communication and how i talk to people.
 
-# febuary 10, 2026
+# march 23, 2026 
+i used the teams ranking and scores that they have lost and won to determine who i thought was gonna go to championships, it was easy to make these predictions because i just compared peoples scores and choose who i thought would have a better chance in winning, a computer program can predict better by recognizing the patter of who wins and also comparing ranks.
 1) no i dont really like football idk why i just never grew up watching it so i dont really understand it.
 2) no i didnt watch the game, i did see the half time show with bad bunny though and i loved it.
