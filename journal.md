@@ -65,3 +65,9 @@ i used the teams ranking and scores that they have lost and won to determine who
 
 # march 10, 2026
 honestly after i finished my bracket i never kept up to date with what teams win and which ones lose i know u probably were supposed to but i have been needing to lock in for other classes in this class so i fell behind and at the end of all the games im going to calculate how many points i really got, my points probably wont be that good tho because i carried the best groups to the championship so ill probably use more as i go.
+
+# april 9, 2026
+if u were to be one of the people that went to another planet with ai robots(which would never happen boi i wanna die on earth thangya) an got put and trapped on the ship by the robots i would probably just live my couple days left of living there. i wouldnt beg or ask to get set free i mean their robots, they think logically and i dont think have emotions so whether i beg or not they still wouldnt feel bad enough to set us free so why even try. but like i said i would  never go to another planet with robots, freak that i rather stay on earth, a human and robot have nothingf in common so i fear it would just be weird and awkard around them.
+
+# april 13, 2026
+2 technologies tyhat were used for the artemis 2 mission was communication tech like computers and radios where they could here eachother and probably tracking tech because i no tracking was done these people that went on the mssion could be lost in space withtheir rocket and that would be very terrifying. some challenges they had to go through on the ship were probably none major ones but personally if here was a planned communication cutoff i would be battling myself internally because what you mean i cant reach earth and im in space right now so far away from my loved one and theres a possibility that i might never go home if something goes wrong, so that was probably an internal challenge astronaunts had to go through. 
