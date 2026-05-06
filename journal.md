@@ -71,3 +71,6 @@ if u were to be one of the people that went to another planet with ai robots(whi
 
 # april 13, 2026
 2 technologies tyhat were used for the artemis 2 mission was communication tech like computers and radios where they could here eachother and probably tracking tech because i no tracking was done these people that went on the mssion could be lost in space withtheir rocket and that would be very terrifying. some challenges they had to go through on the ship were probably none major ones but personally if here was a planned communication cutoff i would be battling myself internally because what you mean i cant reach earth and im in space right now so far away from my loved one and theres a possibility that i might never go home if something goes wrong, so that was probably an internal challenge astronaunts had to go through. 
+
+# may 6, 2026
+i contribute to the development of ai everyday i fear, from when i scroll on tiktok to when i use ai to anwser questions on my test. ai uses the responses from humans to improve it self and even i scroll on my phone everyday they are taking my data and saving to remember my likes and what i like to watch. when i use ai to cheat on my test it uses the questions i input to it to become smarted and understand more things. 
